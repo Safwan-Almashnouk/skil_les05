@@ -25,3 +25,6 @@
 toothpicks
 
 ¼ cup confectioners' sugar, or as needed
+![the food that will kill u](https://github.com/Safwan-Almashnouk/skil_les05/blob/main/Deep-fried_butter_at_State_Fair_of_Texas_2009a.jpg)
+
+![this is what it looks like](https://github.com/Safwan-Almashnouk/skil_les05/blob/main/16818-heart-attack-illustration.jpg)
